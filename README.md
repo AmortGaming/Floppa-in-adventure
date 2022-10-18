@@ -1,7 +1,7 @@
 # Floppa in  adventure
 
 <p align="center">
-      <img src="https://ibb.co/wz2vmWb" width="726">
+      <img src="https://inlnk.ru/ELMVdV" width="726">
 </p>
 
 ## download
